@@ -10,3 +10,12 @@ Die gemeine Erdkröte wird allgemein stark unterschätzt. Sie ist zwar wechselwa
  * Liebt Würmer und Schnecken
  * kommt mehrere Tage ohne Nahrung aus
 
+
+
+
+Die weise Kröte spricht (nach Goethe - jaja, auch sie kennt den):
+
+> Getretener Quaak
+> ist breit, nicht staak
+
+
