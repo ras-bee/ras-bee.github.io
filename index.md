@@ -1,1 +1,2 @@
 # Fette Kröten
+Die gemeine Erdkröte wird allgemein stark unterschätzt. Sie ist zwar wechselwarm, verträgt aber erstaunlich niedrige Temperaturen. Schon knapp über dem Gefrierpunkt strebt sie unverdrossen über Stock und Stein zum nächsten Teich.
